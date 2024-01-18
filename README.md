@@ -1,4 +1,4 @@
 
 ## 🔗 Links
-[take look](talalAya.github.io/aya-afnan)
+[take look](https://talalaya.github.io/aya-afnan/)
 
